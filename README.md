@@ -2,7 +2,7 @@
 - 👀 I’m interested in becoming a Web/Software Developer.
 - 🌱 I’m currently learning Web/Software Development
 - 💞️ I’m looking to collaborate on HTML, CSS, JavaScript and lot more...
-- 📫 How to reach me ... Dm me devikecele@gmail.com
+- 📫 How to reach me ... Dm me at devikecele@gmail.com
 
 - 😂😂 The funny part is am just 16 year old
 
