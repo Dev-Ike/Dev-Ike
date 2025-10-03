@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on HTML, CSS, JavaScript and lot more.......
 - 📫 How to reach me ... Dm me at devikecele@gmail.com
 
-- 😂😂 The funny part is am just 16 years old 😎😎
+- 😂😂 The funny part is am just a little boy 😎😎
 
 <!---
 Dev-Ike/Dev-Ike is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
